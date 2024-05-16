@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @nikituchproshyvuch
+- 👀 I’m interested in computers
+- 🌱 I’m currently learning how to repair pc's
+- 💞️ I’m looking to collaborate on idk
+- 📫 How to reach me type me on tg @winmastt or discord @nikita.380
+- 😄 Pronouns: I love Ukraine
+- ⚡ Fun fact: idk
